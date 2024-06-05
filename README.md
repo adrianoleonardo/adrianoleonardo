@@ -10,5 +10,7 @@ Meu nome é adriano leonardo
 
 
 00001098480466sp@al.educacao.sp.gov.br
+
+
 (<img src="https://pa1.aminoapps.com/6450/cbaabd744d2b9b9b420934e2ef7f22553ddab2ba_00.gif" alt="Super choque | Wiki | SUPER CHOQUE-BRASIL™ Amino"/>!
 )
